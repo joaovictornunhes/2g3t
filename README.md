@@ -1,1 +1,2 @@
-# 2g3t
+# DUPLA
+## Joao - 18 --- Gabriel - 12.
