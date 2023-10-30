@@ -1,2 +1,2 @@
 # DUPLA
-## Joao - 18 --- Gabriel - 12.
+## Joao - 18 --- Gabriel Gay - 12.
